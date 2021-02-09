@@ -1,0 +1,1 @@
+I'm not really sure what kind of project I'd like to join just yet, but I like the idea of contributing to a music/audio related project like Audacity. I also have used many fan man tools and fixes for PC games, especially older titles. That would also be fun to help with.
